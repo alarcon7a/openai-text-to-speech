@@ -18,4 +18,4 @@ Aprende a llevar los distintos textos que tienes a una interfaz de audio con mul
 ## Youtube 📺
 🔽🔽🔽🔽🔽🔽🔽🔽 
 
-https://youtu.be/lvBIuL2ByCk
+https://youtu.be/swkqLSW3dxk
